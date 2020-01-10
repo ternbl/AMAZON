@@ -1,0 +1,2 @@
+# AMAZON
+"Amazon.com: Online Shopping for Electronics, Apparels"   Amazon International Shopping We offer a variety of shopping benefits for you, from wherever you are in the world.  Shop thousands of deals &amp; promotions that ship around the world  Shop your favorite brands  Shop millions of products with fast local delivery.  All items are available by cheapest prices and fast shipping. https://www.amazon.com/?tag=commerce1-20&amp;linkCode=ez
